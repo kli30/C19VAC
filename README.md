@@ -23,8 +23,8 @@
 
 updated 09/17/2021
 ##########################################################
-VACCINE KILLS 5 PEOPLE FOR EACH COVID LIFE SAVED.
 
+VACCINE KILLS 5 PEOPLE FOR EACH COVID LIFE SAVED.
 Source:
 Vaccines and Related Biological Products Advisory Committee – 9/17/2021
 U.S. Food and Drug Administration
