@@ -19,3 +19,14 @@
 总之，如果疫苗有副作用，可以用大胡子的治疗方案 (https://bit.ly/2Z1zsqr) 用伊维菌素或者青蒿素; 如果担心血栓，可以去查一下D-Dimer； 如果不幸感染，一定要早下手强力去病毒。
 
 愿大家都健康平安～
+
+
+
+##########################################################
+VACCINE KILLS 5 PEOPLE FOR EACH COVID LIFE SAVED.
+
+Source:
+Vaccines and Related Biological Products Advisory Committee – 9/17/2021
+U.S. Food and Drug Administration
+
+https://youtube.com/watch?t=15684&v=WFph7-6t34M
