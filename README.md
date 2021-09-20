@@ -23,10 +23,20 @@
 
 updated 09/17/2021
 ##########################################################
-
+疫苗每救一个COVID病人，会杀死两个人
 VACCINE KILLS 5 PEOPLE FOR EACH COVID LIFE SAVED.
 Source:
 Vaccines and Related Biological Products Advisory Committee – 9/17/2021
 U.S. Food and Drug Administration
-
 https://youtube.com/watch?t=15684&v=WFph7-6t34M
+
+
+updated 09/20/2021
+#########################################################
+德国医生解剖死于疫苗的人
+autopsies of eight people who died after COVID19 vaccination 
+https://twitter.com/DrJohnB2/status/1440083692857135111
+
+
+疫苗解毒之氧化石墨烯(graphene oxide, 疫苗含有大量的氧化石墨烯纳米脂质颗粒)：
+https://gnews.org/zh-hans/1492248/
