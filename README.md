@@ -40,3 +40,9 @@ https://twitter.com/DrJohnB2/status/1440083692857135111
 
 疫苗解毒之氧化石墨烯(graphene oxide, 疫苗含有大量的氧化石墨烯纳米脂质颗粒)：
 https://gnews.org/zh-hans/1492248/
+
+updated 10/01/2021
+#########################################################
+Points that stand on Medicare data (~ 60M people)
+
+https://rumble.com/vn12v1-attorney-thomas-renz-we-got-them.-fact-check-this-all-new-whistleblower-inf.html
