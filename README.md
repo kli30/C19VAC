@@ -16,13 +16,13 @@
 
 我说这些可能太晚，我知道的时候大家都已经打了疫苗，而且我说这些可能让大家很不舒服。另外，大家都有自己的认知，大家现在也都很健康，我也可能是错的，所以大家可能也不会相信上面的内容。但无论如何，请大家去验证。
 
-总之，如果疫苗有副作用，可以用大胡子的治疗方案 (https://bit.ly/2Z1zsqr) 用伊维菌素或者青蒿素; 如果担心血栓，可以去查一下D-Dimer； 如果不幸感染，一定要早下手强力去病毒。
+总之，如果疫苗有副作用，可以用大胡子的治疗方案 (https://bit.ly/2Z1zsqr) 用[伊维菌素](https://speakwithanmd.com)或者[青蒿素](https://www.amazon.com/dp/B08DDHJLR5?ref=nb_sb_ss_w_as-ypp-rep_ypp_rep_k0_1_8&crid=1HEQNZ0URJBCI&sprefix=artemins); 如果担心血栓，可以去查一下D-Dimer； 如果不幸感染，一定要早下手强力去病毒。
 
 愿大家都健康平安～
 
 
-updated 09/17/2021
-##########################################################
+updated 09/17/2021 <br />
+########################################################## <br />
 疫苗每救一个COVID病人，会杀死两个人
 VACCINE KILLS 5 PEOPLE FOR EACH COVID LIFE SAVED.
 Source:
@@ -31,8 +31,8 @@ U.S. Food and Drug Administration
 https://youtube.com/watch?t=15684&v=WFph7-6t34M
 
 
-updated 09/20/2021
-#########################################################
+updated 09/20/2021<br />
+#########################################################<br />
 德国医生解剖死于疫苗的人
 autopsies of eight people who died after COVID19 vaccination 
 https://twitter.com/DrJohnB2/status/1440083692857135111
@@ -41,8 +41,13 @@ https://twitter.com/DrJohnB2/status/1440083692857135111
 疫苗解毒之氧化石墨烯(graphene oxide, 疫苗含有大量的氧化石墨烯纳米脂质颗粒)：
 https://gnews.org/zh-hans/1492248/
 
-updated 10/01/2021
-#########################################################
+updated 10/01/2021 <br />
+#########################################################<br />
 Points that stand on Medicare data (~ 60M people)
 
 https://rumble.com/vn12v1-attorney-thomas-renz-we-got-them.-fact-check-this-all-new-whistleblower-inf.html
+
+ 
+<br />
+免责声明： 
+请自行判断以上内容的真实性，本人对本文提到的信息不承担任何法律责任。
