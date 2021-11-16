@@ -33,21 +33,27 @@ https://youtube.com/watch?t=15684&v=WFph7-6t34M
 
 updated 09/20/2021<br />
 #########################################################<br />
-德国医生解剖死于疫苗的人
-autopsies of eight people who died after COVID19 vaccination 
-https://twitter.com/DrJohnB2/status/1440083692857135111
+德国医生解剖死于疫苗的人<br />
+autopsies of eight people who died after COVID19 vaccination <br />
+https://twitter.com/DrJohnB2/status/1440083692857135111<br />
 
 
-疫苗解毒之氧化石墨烯(graphene oxide, 疫苗含有大量的氧化石墨烯纳米脂质颗粒)：
-https://gnews.org/zh-hans/1492248/
+疫苗解毒之氧化石墨烯(graphene oxide, 疫苗含有大量的氧化石墨烯纳米脂质颗粒)：<br />
+https://gnews.org/zh-hans/1492248/<br />
 
 updated 10/01/2021 <br />
 #########################################################<br />
 Points that stand on Medicare data (~ 60M people)
 
-https://rumble.com/vn12v1-attorney-thomas-renz-we-got-them.-fact-check-this-all-new-whistleblower-inf.html
+https://rumble.com/vn12v1-attorney-thomas-renz-we-got-them.-fact-check-this-all-new-whistleblower-inf.html <br />
 
- 
+updated 11/15/2021 <br />
+#########################################################<br />
+Blood test after Vaccine:<br />
+https://bit.ly/3HqgTO9<br />
+
+
+
 <br />
-免责声明： 
+免责声明： <br />
 请自行判断以上内容的真实性，本人对本文提到的信息不承担任何法律责任。
